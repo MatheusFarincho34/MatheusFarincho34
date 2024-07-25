@@ -7,7 +7,7 @@ Anotações:
 - Meu nome é: Matheus Farincho
 - Estou estudando Matemática que nem adoidado
 - por causa do novo ensino médio que não ensina nada
-- Não gosto do novo encino médio
+- Não gosto do novo ensino médio
 - 
 - 2024
 - 
