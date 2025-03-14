@@ -14,6 +14,10 @@ Anotações:
 - Anotações:
 - 
 - Continuo não gostando do ensino integral
+- aconteceu tanta coisa que listar é dificil
+- finalizei um relacionamento
+- entrei em um processo de melhoria pessoal
+- entrei em uma jornada que talvez mudara meu processo profissional
 - 
 - 2025
 - 
