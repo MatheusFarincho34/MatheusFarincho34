@@ -21,10 +21,12 @@ Anotações:
 - 
 - 2025
 - 
-- Anotações
+- Anotações:
+- 
 - estou apaixonado e com isso minha vida virou de ponta cabeça nisso até consegui decidir qual curso irei fazer graças a ela
 - estou aprendendo a melhorar minha escrita com redações
 - estou mais decidido e confiante junto disso minha oratória melhorou 
 - estou cheio de sonhos para o futuro
 - ( faculdade de ciencias contaveis UEM/ morar junto a ela ano que vem em maringá)
 - continuo não gostando do integral
+- a cada dia eu me apaixono mais e mais por ela aiai
